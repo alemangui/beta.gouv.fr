@@ -33,9 +33,9 @@ A côté de ces missions, nous attendons ta participation à l'évolution de la 
 
 - Début de la mission : dès que possible
 - Statut : Freelance
-- Gratification : à discuter
+- Rémunération : taux moyen journalier en fonction de l'expérience
 
-Le poste est basé à Paris, avec possibilité de télétravail bien évidemment.
+Le poste est basé à Paris, avec possibilité de télétravail.
 
 ## Comment postuler ?
 
